@@ -11,5 +11,5 @@ En este Repositorio encontraras Flayers Publicitarios y el formato ideal para tu
 ---
 ## Hoja de vida
 ![](/Curriculum_Vitae/img/CV_MENDOZA-PQ.png)
-### Descarga el Editable. **[¡Hoja de Vida!](hhttps://drive.google.com/file/d/1eHe0rFg950RZ6QUc14FAuKJVfRaFud_q/view)**
+### Descarga el Editable. **[¡Hoja de Vida!](https://drive.google.com/file/d/1eHe0rFg950RZ6QUc14FAuKJVfRaFud_q/view?usp=sharing)**
 =======
